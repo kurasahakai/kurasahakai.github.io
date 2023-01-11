@@ -1,1 +1,0 @@
-# kurasahakai.github.io
